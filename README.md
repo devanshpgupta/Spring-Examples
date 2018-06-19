@@ -1,1 +1,1 @@
-#Diiferent projects I have worked on.
+#Different projects I have worked on.
